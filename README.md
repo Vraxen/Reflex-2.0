@@ -5,7 +5,7 @@ Features   Anti-Recoil  I Auto Weapond Detection I Legit mode I Rapid-Fire I Ins
 
 
 # Social Media
-you can find out social media here
+you can find our social media here
 
 TikTok : https://www.tiktok.com/@rustscripter
 
